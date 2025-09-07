@@ -12,7 +12,7 @@
 
 NAME(S) -⭐ m1gr4ine/two time/chance   
 AGE -⭐ minor  
-FANDOMS -⭐ phighting, forsaken, ^_^, let him go, dandy's world (yes. im not problematic.), gasa4, etc
+FANDOMS -⭐ phighting, forsaken, ^_^, let him go, dandy's world (yes. im not problematic.), gasa4, etc  
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
 [ please feel free to say hi to me if you see me! i don't bite..... lalalalalala ^_^ ]
