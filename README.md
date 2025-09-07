@@ -14,4 +14,4 @@ NAME(S) -⭐ m1gr4ine/two time/chance
 AGE -⭐ minor  
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
-[ please feel free to say hi to me if you see me in ponytown! i don't bite..... lalalalalala ^_^ ]
+[ please feel free to say hi to me if you see me! i don't bite..... lalalalalala ^_^ ]
