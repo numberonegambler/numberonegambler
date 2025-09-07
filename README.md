@@ -1,4 +1,4 @@
-![image alt]((https://static.wikia.nocookie.net/forsaken2024/images/7/75/Chance_plush.png/revision/latest?cb=20250204162514))
+![image alt](https://static.wikia.nocookie.net/forsaken2024/images/7/75/Chance_plush.png/revision/latest?cb=20250204162514)
                   .⭒☆━━━✰━━━☆⭒..⭒☆━━━✰━━━☆⭒..⭒☆━━━✰━━━☆⭒.
              
 
