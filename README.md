@@ -10,5 +10,5 @@
 
   ┏━━✦❘༻༺❘✦━━┓
 
- -⭐ m1gr4ine
+ -⭐ m1gr4ine   
  -⭐ minor
