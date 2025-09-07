@@ -7,3 +7,8 @@
  `` Chance always saw iTrapped as a close friend.     
        Someone he could talk to about anything, anything at all.       
   iTrapped saw them as nothing more than a pawn. ,,
+
+  ┏━━✦❘༻༺❘✦━━┓
+
+ -⭐ m1gr4ine
+ -⭐ minor
