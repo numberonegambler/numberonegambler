@@ -2,4 +2,5 @@
                   .⭒☆━━━✰━━━☆⭒..⭒☆━━━✰━━━☆⭒..⭒☆━━━✰━━━☆⭒.
              
  `` Chance always saw iTrapped as a close friend. Someone he could talk to about anything, anything at all.
-     iTrapped saw them as nothing more than a pawn. ,,
+     
+  iTrapped saw them as nothing more than a pawn. ,,
