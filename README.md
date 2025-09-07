@@ -12,7 +12,7 @@
 
 NAME(S) -⭐ m1gr4ine/two time/chance   
 AGE -⭐ minor <3  
-FANDOMS -⭐ Phighting, Forsaken, ^_^, Let Him Go, Dandy's World (yes. im not problematic.), GASA4, BLOODMONEY, Bonnie's Bakery, etc  
+FANDOMS -⭐ Phighting, Forsaken, ^_^, Let Him Go, Dandy's World (yes. im not problematic.), Gasa4, Bloodmoney, Bonnie's Bakery, etc  
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
 /̵͇̿̿/'̿'̿ ̿ ̿̿ ̿̿ 💥 PLEASE FEEL FREE TO SAY HI IF YOU SEE ME!!! I LOVE SAYING HI!!! HASJDCJKAKKAHAHAHHAH
