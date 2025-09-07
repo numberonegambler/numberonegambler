@@ -15,4 +15,4 @@ AGE -⭐ minor <3
 FANDOMS -⭐ phighting, forsaken, ^_^, let him go, dandy's world (yes. im not problematic.), gasa4, etc  
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
-̸̱͂ ̸͆̿͞ ̄̿̄͞ ̿̅͞ ̿̅͞ ̄̚ 💥 ୨⎯ "please feel free to say hi if you see me! i don't bite..... lalalalalala ^_^" ⎯୧
+/̵͇̿̿/'̿'̿ ̿ ̿̿ ̿̿ 💥 ୨⎯ "please feel free to say hi if you see me! i don't bite..... lalalalalala ^_^" ⎯୧
