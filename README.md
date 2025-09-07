@@ -1,1 +1,1 @@
-https://media.discordapp.net/attachments/949535910956007425/1414112853065203835/banner.PNG?ex=68be62b9&is=68bd1139&hm=b31b3bd12287f4a3a6b9f42429718c388cff978c1718cb6c9092d725f523e98e&=&format=webp&quality=lossless
+
