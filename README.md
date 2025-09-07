@@ -1,5 +1,4 @@
-![image alt](<img width="494" height="195" alt="image" src="https://github.com/user-attachments/assets/dc7eddaa-ca83-4780-ae17-e33626af4888" />
-)
+![image alt](https://media.discordapp.net/attachments/949535910956007425/1414122927271575612/image.png?ex=68be6c1a&is=68bd1a9a&hm=dd0ebfdfbe9ddc8e767aed7ecdbc646974ef92f071bda7657450a39484054b17&=&format=webp&quality=lossless)
                 
    ┏━━✦❘༻༺❘✦━━┓ 
              
