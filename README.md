@@ -13,7 +13,7 @@
 NAME(S) -⭐ m1gr4ine/two time/chance   
 AGE -⭐ minor <3  
 FANDOMS -⭐ Phighting, Forsaken, ^_^, Let Him Go, Dandy's World (yes. im not problematic.), Gasa4, Bloodmoney, Bonnie's Bakery, etc  
-DNIS -⭐ h*mophobes, pr*dators, pr*shippers, etc. basic DNI criteria. <3   
+DNIS -⭐ homophobes, pr*dators, proshippers, etc. basic DNI criteria. <3   
 ︶︶︶︶︶︶︶︶︶︶︶︶
 
 /̵͇̿̿/'̿'̿ ̿ ̿̿ ̿̿ 💥 PLEASE FEEL FREE TO SAY HI IF YOU SEE ME!!! I LOVE SAYING HI!!! HASJDCJKAKKAHAHAHHAH
