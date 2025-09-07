@@ -1,4 +1,4 @@
-![image alt](https://media.discordapp.net/attachments/949535910956007425/1414126153987264555/oneshot.png?ex=68be6f1c&is=68bd1d9c&hm=a096923a124cd71faf1a17510201549e0811f418730ec19fac9bbee3e0b6ec7a&=&format=webp&quality=lossless)
+![image alt](https://media.discordapp.net/attachments/949535910956007425/1414129167506866196/image.png?ex=68be71ea&is=68bd206a&hm=4f58eb66d16c42e1afb6fae73ff4f6b811c876c093fc3447c6019d4be1ac23af&=&format=webp&quality=lossless)
                 
    ┏━━✦❘༻༺❘✦━━┓ 
              
