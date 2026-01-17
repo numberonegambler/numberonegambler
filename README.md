@@ -1,2 +1,2 @@
-![image alt](https://media.discordapp.net/attachments/949535910956007425/1462085861729374302/image.png?ex=696ce911&is=696b9791&hm=08684b2dfa438b2f0690d34c2e7c90c052703616688e692ecdf955e283ab9b9d&=&format=webp&quality=lossless)
+![image alt](https://media.discordapp.net/attachments/949535910956007425/1462103158724493385/fuck_you_itrapped.png?ex=696cf92d&is=696ba7ad&hm=05ccc83642f7093f4829ccc1c128d4171ebdcce09b036e110bbfaf4492d5c714&=&format=webp&quality=lossless&width=881&height=881)
                 
