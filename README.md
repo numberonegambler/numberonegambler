@@ -2,6 +2,6 @@
                 
 ______________________________________________________________________________________________________
 
-  `` Oh, Mr. Wolf, you want me to stay?
+  `` I have the thing you love, but the need in me is way too much.
 
- But I fear we'll regret it one day. ,,
+ If I open wide, one of us may get lost inside. ,,
