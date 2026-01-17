@@ -5,3 +5,13 @@ ________________________________________________________________________________
           `` I have the thing you love, but the need in me is way too much.
                                           ♥️
                      If I open wide, one of us may get lost inside. ,,
+
+ ꒰ა m1gr4ine, chance, 2time, etc ໒꒱
+ 
+ 𓋫 𓏴𓏴 𓏵 𓏴𓏴 𓏵 𓏴𓏴 𓋫
+
+ ꒰ა minor, please dni if 18+ ໒꒱
+
+ 𓋫 𓏴𓏴 𓏵 𓏴𓏴 𓏵 𓏴𓏴 𓋫
+
+ ꒰ა forsaken, dandy's world, crk, and phighting fan majorly ໒꒱
