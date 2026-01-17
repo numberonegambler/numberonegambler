@@ -8,10 +8,6 @@ ________________________________________________________________________________
                     ↠ next song ↺ repeat ⊜ pause
 
             ---------------------------------------------
-
-          `` I have the thing you love, but the need in me is way too much.
-                                          ♥️
-                     If I open wide, one of us may get lost inside. ,,
                 
 
  ꒰ა *m1gr4ine, chance, 2time, etc* ໒꒱
