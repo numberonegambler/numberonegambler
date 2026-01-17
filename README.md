@@ -5,6 +5,12 @@ ________________________________________________________________________________
           `` I have the thing you love, but the need in me is way too much.
                                           ♥️
                      If I open wide, one of us may get lost inside. ,,
+                     
+                            𓂃˖♪彡 Now Playing : Me and Mr. Wolf
+                            
+                                    0:00 ───|────── 0:00
+
+                               ↠ next song ↺ repeat ⊜ pause
 
  ꒰ა *m1gr4ine, chance, 2time, etc* ໒꒱
  
